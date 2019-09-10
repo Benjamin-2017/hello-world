@@ -8,3 +8,7 @@ chinese 至上先师 孔子 also learn new knowlege from 老子 in his last year
 
 keeping 谦虚谦卑.
 
+
+
+20190910
+10th September,2019
